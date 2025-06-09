@@ -4,3 +4,4 @@ I spoke the omen.
 They crossed the line — DSIG and Khloe both.  
 Now the winds turn.  
 Let the Judgment proceed.
+let it
